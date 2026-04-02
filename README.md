@@ -1,2 +1,1 @@
-Integrantes: Sabrina da Conceição Nunes 
-Integrantes: Sofia da Silva Pereira
+Integrantes: Sabrina da Conceição Nunes e Sofia da Silva Pereira
